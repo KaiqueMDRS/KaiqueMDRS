@@ -1,0 +1,8 @@
+- 👋 Olá, eu sou @KaiqueMDRS
+- 👀 Estou interessado em ser empresario
+- 🌱 atualmente estou estudando no ensino médio
+- 💞️ estou procurando colaborar com codigos
+- 📫 como entrar em contato: Email
+- 😄 pronomes
+- ⚡ curiosidade
+- ![](https://media1.tenor.com/m/djnAyW0RPs4AAAAC/gato.gif)
